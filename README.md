@@ -1,2 +1,1 @@
-# physio-mawson-lakes
-Physiotherapist
+Advance Allied’s <a href="https://advanceallied.com/physio-mawson-lakes/">physio Mawson Lakes</a> perform various types of physiotherapy and treat many kinds of patients from all walks of life. Our field of specialty, however, is the neurological physiotherapy treatment of persons participating in the National Disability Insurance Scheme. This area of physio healthcare is near and dear to our hearts, and our empathetic physiotherapists are highly trained and proficient.
